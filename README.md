@@ -1,4 +1,3 @@
 # hello-word
-Go fuck yourself, I'm the best \o/
 
-ouserdtfguhiojhgfhdtsrz'-(eètiuyhjgfxwsretz'e(ytiuhjbvhcgdteètioyumj
+c'est un zoophile que entre dans un bar
